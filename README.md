@@ -19,13 +19,13 @@
 <img width="1341" height="31" alt="Untitled41_20260906113332" src="https://github.com/user-attachments/assets/d22b5121-f82d-4c56-a287-2a76bd5cdf76" />
 
 
-<img width="99" height="56" alt="21" src="https://github.com/user-attachments/assets/015f91ca-9b1e-4bd3-b7a5-7fcc48e57678" />
-<img width="99" height="56" alt="mymelody" src="https://github.com/user-attachments/assets/15d1079d-18b5-4467-a06f-b8965d46fa2d" />
-<img width="99" height="56" alt="toysrus" src="https://github.com/user-attachments/assets/c5a12d59-7bed-4722-a3bd-7ed46bf72023" />
-<img width="150" height="86" alt="dgy3qx0-d60f3e0f-37b4-4d95-a3bd-2f9677eb10d0" src="https://github.com/user-attachments/assets/988b9ef7-dd7a-4696-a5c7-b3a6cfe2c86a" />
-<img width="99" height="56" alt="tumblr_05dbf14916b4bfcb3397da4a165d85d3_05b11764_100" src="https://github.com/user-attachments/assets/2399b76a-7671-4677-ac9b-acec85c76f0a" />
-<img width="98" height="56" alt="tumblr_413ef3bf0f6a018e242a64079b5acb4b_a383724c_100" src="https://github.com/user-attachments/assets/37f2fee9-ef1f-47d6-bc40-92ae1fc31bfe" />
-<img width="99" height="56" alt="tumblr_364a4e368cd24e302165c904cf943d0d_568efbfe_100" src="https://github.com/user-attachments/assets/80ebe670-241c-4998-94b4-00824f38ffeb" />
+<img width="69" height="36" alt="21" src="https://github.com/user-attachments/assets/015f91ca-9b1e-4bd3-b7a5-7fcc48e57678" />
+<img width="69" height="36" alt="mymelody" src="https://github.com/user-attachments/assets/15d1079d-18b5-4467-a06f-b8965d46fa2d" />
+<img width="69" height="36" alt="toysrus" src="https://github.com/user-attachments/assets/c5a12d59-7bed-4722-a3bd-7ed46bf72023" />
+<img width="99" height="56" alt="dgy3qx0-d60f3e0f-37b4-4d95-a3bd-2f9677eb10d0" src="https://github.com/user-attachments/assets/988b9ef7-dd7a-4696-a5c7-b3a6cfe2c86a" />
+<img width="69" height="36" alt="tumblr_05dbf14916b4bfcb3397da4a165d85d3_05b11764_100" src="https://github.com/user-attachments/assets/2399b76a-7671-4677-ac9b-acec85c76f0a" />
+<img width="69" height="36" alt="tumblr_413ef3bf0f6a018e242a64079b5acb4b_a383724c_100" src="https://github.com/user-attachments/assets/37f2fee9-ef1f-47d6-bc40-92ae1fc31bfe" />
+<img width="69" height="36" alt="tumblr_364a4e368cd24e302165c904cf943d0d_568efbfe_100" src="https://github.com/user-attachments/assets/80ebe670-241c-4998-94b4-00824f38ffeb" />
 
 
 <div align="center">

@@ -34,3 +34,14 @@
 
 
 <img width="2608" height="1617" alt="Untitled38_20260906104401" src="https://github.com/user-attachments/assets/5950c5fc-d945-4fca-8d44-0087e76ac24c" />
+
+<img width="1335" height="287" alt="Untitled42_20260906123539" src="https://github.com/user-attachments/assets/db4e7dbe-ceba-48ac-9001-49f98fe3775a" />
+
+
+
+https://github.com/user-attachments/assets/36667ec0-ab12-4879-9c09-2645130da07a
+$\texttt{\color{#ffb2d7}thank you misa!!! (⸝⸝´ ᵕ `⸝⸝)}$ 
+
+
+
+

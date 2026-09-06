@@ -39,9 +39,17 @@
 
 
 
+<details>
+<summary> $\texttt{\color{#ffb2d7}thank you misa!!! (⸝⸝´ ᵕ `⸝⸝)}$  </summary>
+ 
 https://github.com/user-attachments/assets/36667ec0-ab12-4879-9c09-2645130da07a
 
-$\texttt{\color{#ffb2d7}thank you misa!!! (⸝⸝´ ᵕ `⸝⸝)}$ 
+</div>
+
+</details>
+
+
+
 
 
 

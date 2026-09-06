@@ -42,7 +42,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Gaegu&size=105&duration=4500&pause=1000&color=FFB2D7&center=true&width=2000&height=430&lines=Please+don't+call+don't+try+to+contact+me!;I+don't+want+to+do+karaoke!;I'm+getting+over+you!;You+don't+know+but+you+are+hurting+me!;I+need+to+do+my+own+thing%2C+you+see!;I'm+getting+over+you!)](https://git.io/typing-svg)
 
-<img width="1335" height="287" alt="Untitled42_20260906123539" src="https://github.com/user-attachments/assets/db4e7dbe-ceba-48ac-9001-49f98fe3775a" />
+<img width="1335" height="247" alt="Untitled45_20260906162953" src="https://github.com/user-attachments/assets/2698b9bb-6eaa-478e-bac2-ef430edda022" />
 
 
 <details>

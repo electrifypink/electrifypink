@@ -7,13 +7,13 @@
   <img width="641" height="90" alt="Untitled41_20260906113939" src="https://github.com/user-attachments/assets/3b26719c-a8b7-43b1-8be7-79ebbf7fb0c1" />
 
 <img width="261" height="68" alt="Untitled39_20260906105647" src="https://github.com/user-attachments/assets/cbf9d8bb-f4b3-4946-90a0-708374476d6a" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="261" height="68" alt="Untitled39_20260906105954" src="https://github.com/user-attachments/assets/1c36a07c-333f-45ce-bd8e-7d06b09e1046" />
+<img width="261" height="68" alt="Untitled39_20260906105954" src="https://github.com/user-attachments/assets/1c36a07c-333f-45ce-bd8e-7d06b09e1046" />
 
  $\texttt{\color{#ffb2d7}the pursuer of pony town! ദ്ദി˵◝ ⩊ ◜˵)}$ 
 
 <div align="left">
 
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\texttt{\color{#ffb2d7}c*h freely, w2i!}$ ㅤㅤㅤㅤ $\texttt{\color{#ffecf7}having skins from a certain media}$ $\texttt{\color{#ffb2d7} doesn't}$ $\texttt{\color{#ffecf7}mean i support it!}$
+ㅤㅤ $\texttt{\color{#ffb2d7}c*h freely, w2i!}$ ㅤㅤㅤㅤ $\texttt{\color{#ffecf7}having skins from a certain media}$ $\texttt{\color{#ffb2d7} doesn't}$ $\texttt{\color{#ffecf7}mean i support it!}$
 
 <div align="center">
 <img width="1341" height="31" alt="Untitled41_20260906113332" src="https://github.com/user-attachments/assets/d22b5121-f82d-4c56-a287-2a76bd5cdf76" />

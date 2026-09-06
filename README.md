@@ -1,16 +1,36 @@
-## Hi there 👋
 
-<!--
-**electrifypink/electrifypink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="1843" height="704" alt="Untitled39_20260906105209" src="https://github.com/user-attachments/assets/a14e74de-76d2-4b67-86f0-2e81e9ed9ddd" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+
+  <img width="641" height="90" alt="Untitled41_20260906113939" src="https://github.com/user-attachments/assets/3b26719c-a8b7-43b1-8be7-79ebbf7fb0c1" />
+
+<img width="261" height="68" alt="Untitled39_20260906105647" src="https://github.com/user-attachments/assets/cbf9d8bb-f4b3-4946-90a0-708374476d6a" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="261" height="68" alt="Untitled39_20260906105954" src="https://github.com/user-attachments/assets/1c36a07c-333f-45ce-bd8e-7d06b09e1046" />
+
+ $\texttt{\color{#ffb2d7}the pursuer of pony town! ദ്ദി˵◝ ⩊ ◜˵)}$ 
+
+<div align="left">
+
+ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\texttt{\color{#ffb2d7}c*h freely, w2i!}$ ㅤㅤㅤㅤ $\texttt{\color{#ffecf7}having skins from a certain media}$ $\texttt{\color{#ffb2d7} doesn't}$ $\texttt{\color{#ffecf7}mean i support it!}$
+
+<div align="center">
+<img width="1341" height="31" alt="Untitled41_20260906113332" src="https://github.com/user-attachments/assets/d22b5121-f82d-4c56-a287-2a76bd5cdf76" />
+
+
+<img width="99" height="56" alt="21" src="https://github.com/user-attachments/assets/015f91ca-9b1e-4bd3-b7a5-7fcc48e57678" />
+<img width="99" height="56" alt="mymelody" src="https://github.com/user-attachments/assets/15d1079d-18b5-4467-a06f-b8965d46fa2d" />
+<img width="99" height="56" alt="toysrus" src="https://github.com/user-attachments/assets/c5a12d59-7bed-4722-a3bd-7ed46bf72023" />
+<img width="150" height="86" alt="dgy3qx0-d60f3e0f-37b4-4d95-a3bd-2f9677eb10d0" src="https://github.com/user-attachments/assets/988b9ef7-dd7a-4696-a5c7-b3a6cfe2c86a" />
+<img width="99" height="56" alt="tumblr_05dbf14916b4bfcb3397da4a165d85d3_05b11764_100" src="https://github.com/user-attachments/assets/2399b76a-7671-4677-ac9b-acec85c76f0a" />
+<img width="98" height="56" alt="tumblr_413ef3bf0f6a018e242a64079b5acb4b_a383724c_100" src="https://github.com/user-attachments/assets/37f2fee9-ef1f-47d6-bc40-92ae1fc31bfe" />
+<img width="99" height="56" alt="tumblr_364a4e368cd24e302165c904cf943d0d_568efbfe_100" src="https://github.com/user-attachments/assets/80ebe670-241c-4998-94b4-00824f38ffeb" />
+
+
+<div align="center">
+  
+<img width="1341" height="371" alt="Untitled41_20260906113814" src="https://github.com/user-attachments/assets/b74c291b-4b52-4393-a24a-5eb54d4df5ad" />
+
+
+<img width="2608" height="1617" alt="Untitled38_20260906104401" src="https://github.com/user-attachments/assets/5950c5fc-d945-4fca-8d44-0087e76ac24c" />

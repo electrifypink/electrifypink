@@ -36,8 +36,9 @@
   
 <img width="1341" height="371" alt="Untitled41_20260906113814" src="https://github.com/user-attachments/assets/b74c291b-4b52-4393-a24a-5eb54d4df5ad" />
 
-
 <img width="2608" height="1617" alt="Untitled38_20260906104401" src="https://github.com/user-attachments/assets/5950c5fc-d945-4fca-8d44-0087e76ac24c" />
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gaegu&size=105&duration=4500&pause=1000&color=FFB2D7&center=true&width=2000&height=430&lines=Please+don't+call+don't+try+to+contact+me!;I+don't+want+to+do+karaoke!;I'm+getting+over+you!;You+don't+know+but+you+are+hurting+me!;I+need+to+do+my+own+thing%2C+you+see!;I'm+getting+over+you!)](https://git.io/typing-svg)
 
 <img width="1335" height="287" alt="Untitled42_20260906123539" src="https://github.com/user-attachments/assets/db4e7dbe-ceba-48ac-9001-49f98fe3775a" />
 

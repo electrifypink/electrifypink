@@ -7,7 +7,7 @@
   <img width="641" height="90" alt="Untitled41_20260906113939" src="https://github.com/user-attachments/assets/3b26719c-a8b7-43b1-8be7-79ebbf7fb0c1" />
 
 <img width="261" height="68" alt="Untitled39_20260906105647" src="https://github.com/user-attachments/assets/cbf9d8bb-f4b3-4946-90a0-708374476d6a" />
-<img width="261" height="68" alt="Untitled39_20260906105954" src="https://github.com/user-attachments/assets/1c36a07c-333f-45ce-bd8e-7d06b09e1046" />
+ㅤㅤㅤ<img width="261" height="68" alt="Untitled39_20260906105954" src="https://github.com/user-attachments/assets/1c36a07c-333f-45ce-bd8e-7d06b09e1046" />
 
  $\texttt{\color{#ffb2d7}the pursuer of pony town! ദ്ദി˵◝ ⩊ ◜˵)}$ 
 

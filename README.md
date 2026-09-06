@@ -29,7 +29,9 @@
 <img width="69" height="36" alt="tumblr_364a4e368cd24e302165c904cf943d0d_568efbfe_100" src="https://github.com/user-attachments/assets/80ebe670-241c-4998-94b4-00824f38ffeb" />
 
 <div align="center">
-<img width="250" height="40" alt="tumblr_39d74a25bedb80ca1b91210cf6af8be5_8e126094_250" src="https://github.com/user-attachments/assets/75cb72c5-9e2c-4307-8b1c-103278f45866" />
+<img width="180" height="25" alt="tumblr_39d74a25bedb80ca1b91210cf6af8be5_8e126094_250" src="https://github.com/user-attachments/assets/75cb72c5-9e2c-4307-8b1c-103278f45866" />
+<img width="180" height="25" alt="sanrio5" src="https://github.com/user-attachments/assets/8e28ea6d-6009-4968-97ea-ec03cb86d46a" />
+<img width="180" height="25" alt="tumblr_dff8e81d5fa3b77a1af0b3cfe0ae8989_4877c716_400" src="https://github.com/user-attachments/assets/ee76800e-6781-4b04-a1a8-dd284722660b" />
 
 
 <div align="center">

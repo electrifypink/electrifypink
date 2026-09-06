@@ -30,6 +30,10 @@
 
 <div align="center">
 <img width="250" height="40" alt="tumblr_39d74a25bedb80ca1b91210cf6af8be5_8e126094_250" src="https://github.com/user-attachments/assets/75cb72c5-9e2c-4307-8b1c-103278f45866" />
+<img width="250" height="40" alt="sanrio5" src="https://github.com/user-attachments/assets/c86be74e-2536-4977-9920-40c7c6aff728" />
+<img width="300" height="40" alt="tumblr_dff8e81d5fa3b77a1af0b3cfe0ae8989_4877c716_400" src="https://github.com/user-attachments/assets/f6b87a52-7fab-4a02-bdaa-e9aab7a94fa1" />
+
+
 
 
 <div align="center">

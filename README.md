@@ -14,7 +14,7 @@
 
 <div align="left">
 
-ㅤㅤ $\texttt{\color{#ffb2d7}c*h freely, w2i!}$ ㅤㅤㅤㅤ $\texttt{\color{#ffecf7}having skins from a certain media}$ $\texttt{\color{#ffb2d7} doesn't}$ $\texttt{\color{#ffecf7}mean i support it!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\texttt{\color{#ffb2d7}c*h freely, w2i!}$ ㅤㅤㅤㅤ $\texttt{\color{#ffecf7}having skins from a certain media}$ $\texttt{\color{#ffb2d7} doesn't}$ $\texttt{\color{#ffecf7}mean i support it!}$
 
 <div align="center">
   

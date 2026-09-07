@@ -12,16 +12,9 @@ this looks better on pc
 
  $\texttt{\color{#ffb2d7}pony towns internet angel! ദ്ദി˵◝ ⩊ ◜˵)}$ 
 
-<div align="left">
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\texttt{\color{#ffb2d7}c*h freely, w2i!}$ ㅤㅤㅤㅤ $\texttt{\color{#ffecf7}having skins from a certain media}$ $\texttt{\color{#ffb2d7} doesn't}$ $\texttt{\color{#ffecf7}mean i support it!}$
-
 <div align="center">
   
-<img width="125" height="182" alt="pony-town-cbica , sign straw and ata,-dance move 1-blinking-padded-toy361-4x" src="https://github.com/user-attachments/assets/eaacedb3-01bb-40e7-88ce-604981b1e33d" />
-
-<img width="148" height="235" alt="Untitled47_20260907165256" src="https://github.com/user-attachments/assets/e94446b9-7faf-481a-a768-55c12a6bf4a0" />
-
+<img width="2988" height="1911" alt="Untitled50_20260907174026" src="https://github.com/user-attachments/assets/55175409-f446-4966-a306-0c80c326a504" />
 
  $\texttt{\color{#ffb2d7}you'll often see me as this}$
 

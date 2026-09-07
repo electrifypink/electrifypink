@@ -48,6 +48,8 @@ this looks better on pc
 
 <img width="1335" height="247" alt="Untitled45_20260906162953" src="https://github.com/user-attachments/assets/2698b9bb-6eaa-478e-bac2-ef430edda022" />
 
+<img width="720" height="504" alt="cookie-oven-720 (1)" src="https://github.com/user-attachments/assets/9f10720b-b150-485c-8927-9a50400e79b1" />
+
 
 <details>
 <summary> $\texttt{\color{#ffb2d7}thank you misa!!! (⸝⸝´ ᵕ `⸝⸝)}$  </summary>

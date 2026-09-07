@@ -1,4 +1,4 @@
-
+this looks better on pc 
 
 <img width="1843" height="704" alt="Untitled39_20260906105209" src="https://github.com/user-attachments/assets/a14e74de-76d2-4b67-86f0-2e81e9ed9ddd" />
 

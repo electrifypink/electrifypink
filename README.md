@@ -14,8 +14,7 @@ this looks better on pc
 
 <div align="center">
   
-<img width="2988" height="1911" alt="Untitled50_20260907174026" src="https://github.com/user-attachments/assets/55175409-f446-4966-a306-0c80c326a504" />
-
+<img width="2988" height="1911" alt="Untitled50_20260907174722" src="https://github.com/user-attachments/assets/8edab3d1-1e62-40bb-8cd0-7c3c74a7b579" />
  
 <div align="center">
 <img width="1341" height="31" alt="Untitled41_20260906113332" src="https://github.com/user-attachments/assets/d22b5121-f82d-4c56-a287-2a76bd5cdf76" />

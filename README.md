@@ -42,6 +42,11 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Gaegu&size=105&duration=4500&pause=1000&color=FFB2D7&center=true&width=2000&height=430&lines=Please+don't+call+don't+try+to+contact+me!;I+don't+want+to+do+karaoke!;I'm+getting+over+you!;You+don't+know+but+you+are+hurting+me!;I+need+to+do+my+own+thing%2C+you+see!;I'm+getting+over+you!)](https://git.io/typing-svg)
 
+<img width="164" height="252" alt="pony-town-cbica , sign straw and ata,-dance move 1-blinking-padded-toy361-4x" src="https://github.com/user-attachments/assets/eaacedb3-01bb-40e7-88ce-604981b1e33d" />
+
+ $\texttt{\color{#ffb2d7}you'll often see me as this}$
+
+
 <img width="1335" height="247" alt="Untitled45_20260906162953" src="https://github.com/user-attachments/assets/2698b9bb-6eaa-478e-bac2-ef430edda022" />
 
 

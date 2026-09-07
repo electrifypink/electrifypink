@@ -18,7 +18,10 @@ this looks better on pc
 
 <div align="center">
   
-<img width="125" height="185" alt="pony-town-cbica , sign straw and ata,-dance move 1-blinking-padded-toy361-4x" src="https://github.com/user-attachments/assets/eaacedb3-01bb-40e7-88ce-604981b1e33d" />
+<img width="125" height="182" alt="pony-town-cbica , sign straw and ata,-dance move 1-blinking-padded-toy361-4x" src="https://github.com/user-attachments/assets/eaacedb3-01bb-40e7-88ce-604981b1e33d" />
+
+<img width="148" height="235" alt="Untitled47_20260907165256" src="https://github.com/user-attachments/assets/e94446b9-7faf-481a-a768-55c12a6bf4a0" />
+
 
  $\texttt{\color{#ffb2d7}you'll often see me as this}$
 

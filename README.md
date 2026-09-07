@@ -7,6 +7,8 @@ this looks better on pc
 
   <img width="641" height="90" alt="Untitled41_20260906113939" src="https://github.com/user-attachments/assets/3b26719c-a8b7-43b1-8be7-79ebbf7fb0c1" />
 
+![Visitors](https://api.visitorbadge.io/api/visitors?path=electrifypink&label=sweeties&labelColor=%23ffa3bb&countColor=%23ffcad7&style=flat-square)
+
 [<img width="261" height="68" alt="Untitled39_20260906105647" src="https://github.com/user-attachments/assets/cbf9d8bb-f4b3-4946-90a0-708374476d6a" />](https://bling.atabook.org/)
 ㅤ[<img width="261" height="68" alt="Untitled39_20260906105954" src="https://github.com/user-attachments/assets/1c36a07c-333f-45ce-bd8e-7d06b09e1046" />](https://blingpursuer.straw.page/)
 
@@ -33,6 +35,7 @@ this looks better on pc
 <img width="180" height="25" alt="sanrio5" src="https://github.com/user-attachments/assets/8e28ea6d-6009-4968-97ea-ec03cb86d46a" />
 <img width="180" height="25" alt="tumblr_dff8e81d5fa3b77a1af0b3cfe0ae8989_4877c716_400" src="https://github.com/user-attachments/assets/ee76800e-6781-4b04-a1a8-dd284722660b" />
 
+[make cookies](https://dearlovedive.github.io/cookie-maker/) , [makeomurice!](https://dearlovedive.github.io/omu-maker/)
 
 <div align="center">
   

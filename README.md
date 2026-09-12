@@ -35,6 +35,10 @@ this looks better on pc
 <img width="180" height="25" alt="sanrio5" src="https://github.com/user-attachments/assets/8e28ea6d-6009-4968-97ea-ec03cb86d46a" />
 <img width="180" height="25" alt="tumblr_dff8e81d5fa3b77a1af0b3cfe0ae8989_4877c716_400" src="https://github.com/user-attachments/assets/ee76800e-6781-4b04-a1a8-dd284722660b" />
 
+  <img width="500" height="108" alt="tumblr_3aaa096d00bafd84fa8250e4accffadf_5a42320f_500" src="https://github.com/user-attachments/assets/0a863727-8089-4a59-b716-393e9e8b470d" />
+<img width="536" height="71" alt="b0dbad93-0a6c-47a1-9674-5ee1e30f2be0" src="https://github.com/user-attachments/assets/63384b23-a827-4b6d-87dc-db53ab06e0c3" />
+
+
 [make cookies](https://dearlovedive.github.io/cookie-maker/) , [makeomurice!](https://dearlovedive.github.io/omu-maker/)
 
 <div align="center">

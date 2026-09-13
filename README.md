@@ -66,9 +66,62 @@ https://github.com/user-attachments/assets/36667ec0-ab12-4879-9c09-2645130da07a
 
 </details>
 
+<details>
+<summary> $\texttt{\color{#ffb2d7}awards }$  </summary>
+ 
+<table>
+  <tr>
+    <th>
+ 
+pt-walk-of-fame
+
+[<img width="314" height="46" alt="{14E8BCA3-70C9-47D2-8EB5-8DD4F77CC37D}" src="https://github.com/user-attachments/assets/ab8d8f06-7d57-4ac9-bc23-f23bf54cdca0" />](https://github.com/pt-walk-of-fame)
+
+prettiest github 
+
+[<img width="442" height="70" alt="IMG_20260730_153726" src="https://github.com/user-attachments/assets/d1644323-9fc3-4bdb-9f5c-2c859ca9b05c" />](https://github.com/pt-walk-of-fame)
 
 
+title-town
+
+[<img width="326" height="66" alt="Screenshot_2026-07-27-09-27-16-14" src="https://github.com/user-attachments/assets/61fc2f1f-15f5-433a-8b4e-8e36f95aeafc" />](https://github.com/title-town)
+
+pt-fashion
+
+[<img width="339" height="89" alt="Screenshot_2026-07-28-13-28-09-22" src="https://github.com/user-attachments/assets/120ca2e1-d80b-420b-8f78-0444dc65822a" />](https://github.com/pt-fashion)
+
+[<img width="161" height="161" alt="Untitled749_20260728154654" src="https://github.com/user-attachments/assets/c76c6279-6754-449b-9852-72ba1b92546f" />](Https://github.com/pt-awards)
+
+pt-contributers
+
+[<img width="331" height="90" alt="Screenshot_2026-07-28-18-13-36-48" src="https://github.com/user-attachments/assets/c9ab72a4-4ad3-4a79-ac01-7e35ce8a7265" />](Https://github.com/pt-contributers)
+
+pt-players
+
+[<img width="352" height="61" alt="Screenshot_2026-07-30-15-36-20-22" src="https://github.com/user-attachments/assets/8476a318-87d0-47e8-9be1-f9e723d9d376" />](https://github.com/pt-players)
+
+fans-town
+
+[<img width="323" height="66" alt="Screenshot_2026-07-30-22-22-35-13" src="https://github.com/user-attachments/assets/2e8fe400-448b-4bbe-82ad-bf68b1d32ab4" />](https://github.com/fans-town)
+
+pt-of-awesomnesss
+
+<img width="480" height="76" alt="Screenshot_2026-07-31-19-05-09-85" src="https://github.com/user-attachments/assets/7f1ddbd4-7429-46f5-9271-71f6d4719e66" />
+
+pt-nominations 
+
+[<img width="315" height="67" alt="Screenshot_2026-08-02-02-46-24-86" src="https://github.com/user-attachments/assets/10d621b6-0d66-4883-9a0a-17452f5f9883" />](https://github.com/pt-nominations)
+
+[<img width="344" height="46" alt="Screenshot_2026-08-02-09-58-28-47" src="https://github.com/user-attachments/assets/514c353c-93d1-4d0b-b25d-db95136bdbb7" />](https://github.com/pt-nominations)
 
 
+  </th>
+  </tr>
+  </table>
+ill be updating soon, i have like… alot of awards
+
+</div>
+
+</details>
 
 

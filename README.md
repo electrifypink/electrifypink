@@ -54,7 +54,7 @@ this looks better on pc
 
 <img width="420" height="204" alt="cookie-oven-720 (1)" src="https://github.com/user-attachments/assets/9f10720b-b150-485c-8927-9a50400e79b1" />
 
-$\texttt{\color{#ffb2d7}cooked their bumass}$
+$\texttt{\color{#ffb2d7}baked their bumass}$
 
 
 <details>

@@ -24,7 +24,7 @@ this looks better on pc
 
 <img width="69" height="36" alt="stamp (1)" src="https://github.com/user-attachments/assets/10370efb-7957-47a7-bf1b-db70f12677ee" />
 <img width="69" height="36" alt="mymelody" src="https://github.com/user-attachments/assets/15d1079d-18b5-4467-a06f-b8965d46fa2d" />
-<img width="69" height="36" alt="stamp" src="https://github.com/user-attachments/assets/eabd001d-b15a-494b-b473-50e9bb560d14" />
+<img width="69" height="36" alt="stamp (3)" src="https://github.com/user-attachments/assets/25742146-fa2e-4718-896c-a17ba5634a1d" />
 <img width="99" height="56" alt="dgy3qx0-d60f3e0f-37b4-4d95-a3bd-2f9677eb10d0" src="https://github.com/user-attachments/assets/988b9ef7-dd7a-4696-a5c7-b3a6cfe2c86a" />
 <img width="69" height="36" alt="tumblr_05dbf14916b4bfcb3397da4a165d85d3_05b11764_100" src="https://github.com/user-attachments/assets/2399b76a-7671-4677-ac9b-acec85c76f0a" />
 <img width="69" height="36" alt="tumblr_413ef3bf0f6a018e242a64079b5acb4b_a383724c_100" src="https://github.com/user-attachments/assets/37f2fee9-ef1f-47d6-bc40-92ae1fc31bfe" />
